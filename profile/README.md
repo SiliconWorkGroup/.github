@@ -1,8 +1,8 @@
 ## Hi 👋
 SiliconWorkGroup here!
 - 🏗 organization profile isn't finished...
-### or...
-- Check out our [Website(in Chinese)](https://www.siwg.top/)
+### or... have a look?🥳
+- [Website(in Chinese)](https://www.siwg.top/)
 - [Official forum](https://bbs.siwg.top/)
 - [Resources Flow](https://resflow.siwg.top/)
 - [BitMC Project Page (in Chinese)](https://www.siwg.top/bitmc.html)
