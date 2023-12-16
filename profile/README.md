@@ -1,6 +1,6 @@
 ## Hi 👋
 SiliconWorkGroup here!
-- 🏗 organization profile isn't finished...
+- 🏗 organization profile will comming soon.
 ### or... have a look?🥳
 - [Website(in Chinese)](https://www.siwg.top/)
 - [Official forum](https://bbs.siwg.top/)
