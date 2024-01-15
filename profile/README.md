@@ -15,7 +15,7 @@ SiliconWorkGroup here!
 - We are expecting for your join!
 - Any problems please contact [SIWG CONTACT](mailto:contact@siwg.top)
 ### Founders
-- Li3_Fish  - [Personal Site](https://aqua.siwg.top/)
+- LiPolymer  - [Personal Site](https://aqua.siwg.top/)
 - 1107_1108 - [Personal Site](https://1107.siwg.top/)
 ### Subjects
 - Well...Amazing stuff we have done
